@@ -1,1 +1,1 @@
-# daily_study
+＃日々の勉強
